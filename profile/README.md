@@ -19,5 +19,5 @@ We thrive on collaboration! Here's how you can get involved:
 
 🍿 **Fun Facts**
 
-- Our team is powered by coffee ☕ and croissants 🫖.
+- Our team is powered by coffee ☕ and honey breads 🍞.
 - The name "pro-mpt.me" came from a late-night brainstorming session fueled by coffee ☕.
